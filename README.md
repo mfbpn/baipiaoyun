@@ -1,6 +1,6 @@
 # 白嫖云机场官网地址
 
-最新地址：[freecloud.lol](https://freecloud.lol/#/register?code=642x91Ww)
+最新地址：[freecloud.lol](https://freecloud.lol/#/register?code=CXuIoFB0)
 
 ## 白嫖云介绍
 
